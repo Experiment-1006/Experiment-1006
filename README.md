@@ -1,4 +1,4 @@
 Heavy work in progress just the basics ok
-<p align="center"> -2 time fullkin . he/they pretty pls ^3^ . transmasculine.
-<p align="center"> -17 bodily . SYS host.
-<p align="center"> -autistic & probably adhd idk.
+<p align="center"> -BangChan / Channie / Chan . He/Him pretty pls ^3^ . Introject.
+<p align="center"> -17 bodily . SYS host #2.
+<p align="center"> -Please please please don't be weird towards me.
