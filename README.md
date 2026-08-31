@@ -1,4 +1,4 @@
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/273ebe01-00a8-475d-a9c7-aab26bbff220" />
+<img width="1000" height="500" alt="image" src="https://github.com/user-attachments/assets/273ebe01-00a8-475d-a9c7-aab26bbff220" />
 
 REDOING EVERYTHING
 <p align="center">
