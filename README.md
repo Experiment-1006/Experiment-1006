@@ -1,10 +1,10 @@
 <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/ba784d0c-d6cd-4a6e-898d-f7905080b7fc" />
 
 
-<p align="center">Kiri  🪼⊱✧<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/b6e682eb-b9aa-4525-a1dc-87ec2cf2eeae" />
+<p align="center">Kiri / Neytiri .  🪼⊱✧<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/b6e682eb-b9aa-4525-a1dc-87ec2cf2eeae" />
 
 
-<p align="center">◜𓈒    She / Her / Hers  ──★.
+<p align="center">◜𓈒    She / He  ──★.
 
 <p align="center">⸝ ⸝  Fictionkin , SYShost 
 
